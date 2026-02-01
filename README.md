@@ -10,7 +10,7 @@
                      and dave's (dsaf) didnt interact!
                              ˖⁺｡ ˚⋆˙˖⁺｡ ˚⋆˙
                              
-                                                           ୨⎯ thank you! ⎯୧
+                                             ୨⎯ 18+ can ask for discord !! ⎯୧
                                     
                                ₍ᐢ._.ᐢ₎♡  　i totally know what im doing . . . 𓈒
                    
