@@ -1,16 +1,16 @@
-## Hi there 👋
-
-<!--
-**pksys/pksys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                  ♡   .     pksys . they / them for body please!
+                  ⤷   𓈒  you've probably found us from ponytown , hi!  
+                 :¨ ·.· ¨:             ive never used github before ! help!
+                  `· . please whisper to interact .ᐟ  i get anxious sometimes ,,  
+                 ➤      please check strawpage!       ֵ⑅        also ata if i get it set up ♡
+                 
+                                                    •┈୨♡୧┈•
+                                                    
+                  we would prefer if other william's (fnaf)
+                     and dave's (dsaf) didnt interact!
+                             ˖⁺｡ ˚⋆˙˖⁺｡ ˚⋆˙
+                             
+                                                           ୨⎯ thank you! ⎯୧
+                                    
+                               ₍ᐢ._.ᐢ₎♡  　i totally know what im doing . . . 𓈒
+                   
